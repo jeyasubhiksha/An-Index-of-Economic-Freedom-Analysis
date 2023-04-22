@@ -1,0 +1,1 @@
+# An-Index-of-Economic-Freedom-Analysis
